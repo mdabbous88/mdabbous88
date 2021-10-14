@@ -1,3 +1,3 @@
 Hi, I am Mohammad
 
-I am a Father, a Data Engineer
+I am a Father and a Data Engineer
