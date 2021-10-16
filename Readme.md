@@ -1,10 +1,8 @@
 ### Hi, I am Mohammad 🇨🇦
 
-### • I am a Hustband, Father 👨‍👩‍👧 and a Data Engineer 🧑‍💻
+### • I am a Husband, Father 👨‍👩‍👧 and a Data Engineer 🧑‍💻
 
 ### •  I am currently learning everything 📙🔥
-
-### • I am a Team player who takes initiatives, enjoys solving problems and a strong communicator
 
 ### Tools and languages
 
