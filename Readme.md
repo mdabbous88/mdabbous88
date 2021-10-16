@@ -18,4 +18,4 @@
 
 [LinkedIn](https://www.linkedin.com/in/dabbousm/)
 
-[Gmail] (m.dabbous88@gmail.com)
+✉️ m.dabbous88@gmail.com
