@@ -15,6 +15,6 @@
 ### 🍩 PostgresSQL, MongoDB
 
 ### Connect with me
-![LinkedIn](linkedin.com/in/dabbousm)
+[LinkedIn](linkedin.com/in/dabbousm)
 
-![Gmail](m.dabbous88@gmail.com)
+[Gmail](m.dabbous88@gmail.com)
