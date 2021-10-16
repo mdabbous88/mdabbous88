@@ -16,6 +16,6 @@
 
 ### Connect with me
 
-[LinkedIn](linkedin.com/in/dabbousm)
+[LinkedIn](https://www.linkedin.com/in/dabbousm/)
 
 [Gmail] (m.dabbous88@gmail.com)
