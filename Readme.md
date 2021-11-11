@@ -17,6 +17,7 @@
 [LinkedIn](https://www.linkedin.com/in/dabbousm/)
 
 [Personal Profile](https://mdabbous88.github.io/)
+
 ✉️ m.dabbous88@gmail.com
 
 OR scan code with QR scanner
