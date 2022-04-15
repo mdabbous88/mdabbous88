@@ -1,4 +1,4 @@
-### Hi, I am Mohammad 🇨🇦
+### Hi, I am Mohammad
 
 ### • I am a Husband, Father 👨‍👩‍👧 and a Data Engineer 🧑‍💻
 
